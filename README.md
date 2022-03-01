@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @carmeeno
+- 👀 I’m interested in medicine
+- 🌱 I’m currently learning chemistry, biology & psychology
+- 💞️ I’m looking to collaborate on revision!
+- 📫 How to reach me @carmeenmelissa on IG
